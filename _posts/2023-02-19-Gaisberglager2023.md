@@ -14,6 +14,8 @@ weit! Wir dürfen und können unser Gaisberglager wieder abhalten.
 
 Und dazu laden wir alle Gruppenmitglieder sehr gerne ein!
 
+![IMAGE ALT TEXT HERE](https://www.red-angels.at/assets/header_gaisberg.JPG)
+
 #### Hard Facts:
 - **Wann?** von 05.05. - 06.05.2023
 - **Wo?** [Dr. Varnscheinhaus, Oberwinkl 66, 5026 Oberwinkl](https://goo.gl/maps/KCCQh1oP8bHLhGmK7)
