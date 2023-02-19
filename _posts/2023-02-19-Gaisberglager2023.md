@@ -23,12 +23,21 @@ Und dazu laden wir alle Gruppenmitglieder sehr gerne ein!
 - **Abholung?** Samstag zwischen 14.00-15.00 Uhr
 
 
-Wir bitten um Eigenanreise. Wenn möglich, bitte auch mit Fahrgemeinschaften.
+Auch am Gaisberglager wird es ein tolles Programm geben: Erste-Hilfe Stationen,
+Basteln, Spiele, ...
+An diesem Wochenende steht der Spaß miteinander im Vordergrund.
+
+
+#### Wie ist die Anreise?
+Es wird keine gemeinsame Anreise geben. Für die Eigenanreise bitten wir, dass 
+auch Fahrgemeinschaften genutzt werden.
 Nutzt ruhig die WhatsApp-Gruppen, um eine Mitfahrgelegenheit zu
 finden/anzubieten.
 
-Auch am Gaisberglager wird es ein tolles Programm geben: Erste-Hilfe Stationen,
-Basteln, Spiele, ....
+Die Zufahrt kann über Elsbethen oder Gnigl erfolgen. Das 
+[Dr. Varnscheinhaus](https://goo.gl/maps/KCCQh1oP8bHLhGmK7) befindet sich 
+unterhalb des GH Mitteregg. Direkt an der Straße ist der Parkplatz, das Haus
+befindet sich dann eine Gehminute oberhalb.
 
 
 #### Was kostet das ganze?
