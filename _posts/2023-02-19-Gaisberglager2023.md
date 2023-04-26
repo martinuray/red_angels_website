@@ -78,10 +78,12 @@ Bitte bis spätestens **20. März** anmelden.
 
 #### Was soll ich mitnehmen?
 * Schlafsack
+* Polster
 * Trinkflasche
 * eigene Hygieneartikel: Zahnbürste, -pasta, Duschgel, etc.
 * warme Bekleidung
 * Taschenlampe
+* Hausschuhe (wichtig!)
 * Regenschutz
 * Badekleidung/Handtuch
 * wasserdichte Schuhe
