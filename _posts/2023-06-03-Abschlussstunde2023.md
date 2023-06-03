@@ -19,16 +19,16 @@ Wie letztes Jahr werden wir den Abschlusstag gemeinsam mit der Wasserrettung ver
 - **Treffpunkt?** bei der Hütte der Wasserrettung/Bademeister ([Google Maps](https://goo.gl/maps/1JyQXdQpJZHNvaSk8)) um 09:30 Uhr – unbedingt pünktlich sein! Da wir ein genaues Programm haben und Gruppen eingeteilt sind, ist ein späteres Einsteigen nicht möglich!
 - **Ende?** 14:30 Uhr
 
-Bitte um **Zu- oder Absage bis zum 25.6.** unter [diesem Link](https://forms.office.com/e/dPi4QdAeky). Sollte der Link nicht funtkionieren, bitte diesen in die Adresszeile des Browsers kopieren: https://forms.office.com/e/dPi4QdAeky
+Bitte um **Zu- oder Absage bis zum 25.6.** unter [diesem Link](https://forms.office.com/e/dPi4QdAeky). Sollte der Link nicht funktionieren, bitte diesen in die Adresszeile des Browsers kopieren: https://forms.office.com/e/dPi4QdAeky
  
 #### Mitzubringen
 
 - Eigene Wasserflasche
 - Normale Bekleidung (Turnschuhe)
-- Badesachen (Badehose, Bikini, Handtuch, gerne schon direkt drunter anziehen)
-- Sonnenschutz (Sonnencreme, Kapperl)
+- Badesachen (Badehose, Bikini, Handtuch, gerne schon direkt darunter anziehen)
+- Sonnenschutz (Sonnencreme, Kapperl, wer hat, gerne das Kapperl des RK)
  
-Für Verpfelgung ist gesorgt.
+Für Verpflegung ist gesorgt.
 Sollte das Wetter an diesem Tag schlecht sein, kündigen wir rechtzeitig ein Alternativprogramm an!
 
 
