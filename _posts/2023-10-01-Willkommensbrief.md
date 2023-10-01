@@ -15,7 +15,7 @@ Mit diesem kleinen Blog-Post wollen wir in aller Kürze über uns informieren un
 die nötigen nächsten Schritte für eine Aufnahme erklären.
 
 
-### Gruppenstunden
+### Gruppenstunden und weitere Termine
 Wir teilen unsere Gruppen in die Helfis (bis ca. 11 Jahre) und die Jugend 
 (ab ca. 11 Jahre) auf.
 
@@ -30,7 +30,7 @@ die Mitglieder, kommunizieren und euch auch mitteilen, wie lange die Stunde
 dauern wird. 
 
 
-### Gaisberglager 2024
+#### Gaisberglager 2024
 
 Unsere Jugendgruppe hat jedes Jahr ein Gruppen-internes Lager am Gaisberg.
 Dieses findet dieses Schuljahr am Freitag 
@@ -39,7 +39,7 @@ Wir würden uns freuen, wenn ihr diese Tage freihalten könnt. Genauere Informat
 folgen zeitgerecht.
 
 
-### Abschlussstunde 2024
+#### Abschlussstunde 2024
 
 Unsere Abschlussstunde wird an einem Sonntag stattfinden. Zu diesem werden wir
 auch dieses Schuljahr wieder eine gemeinsame 
@@ -51,7 +51,18 @@ Diese Abschlussstunde findet am 30.06.2024 statt. Auch hier werden genauere Info
 zeitgerecht folgen.
 
 
-### Gruppenbeitrag
+### Aufnahme in die Jugendgruppe
+Um in die Jugendgruppe offiziell aufgenommen zu werden, brauchen wir deine/eure Daten. 
+Hierfür bitte das Anmeldeformular (findest du/ihr 
+[hier](https://www.red-angels.at/assets/Anmeldeformular_Jugendgruppe.pdf)) ausfüllen
+und uns per _Mail_ an jg[dot]salzburgstadt[at]s[dot]roteskreuz[dot]at schicken.
+Bitte auch ein aktuelles Foto (Schulfoto oder gutes Portrait-Foto) mitschicken. 
+Das brauchen wir für deinen/eure Mitarbeiterausweise.
+
+_Hinweis:_ bei den E-Mail-Adressen `[dot]` durch `.` und `[at]` durch `@` ersetzen.
+
+
+#### Gruppenbeitrag
 Um unsere Unternehmungen, wie das Gaisberglager und die Abschlussstunde, 
 sowie Materialien für die Gruppenstunden leichter finanzieren zu können, 
 gibt es einen Semester-Beitrag von 25 €. Ob der Betrag je 
@@ -71,7 +82,7 @@ Ist die Bezahlung des Beitrages aus bestimmten Gründen nicht möglich, bitten w
 euch, direkt mit uns in Kontakt zu treten, dafür lässt sich sicher eine Lösung 
 finden.
 
-### Kommunikationskanäle
+#### Kommunikationskanäle
 Da die Jugendgruppen-Mitglieder auf dem direkten Weg zur Gruppenstunde und 
 wieder zurück nach Hause versichert sind, bitten wir um verlässliche Abmeldung 
 in der Signal- oder WhatsApp-Elterngruppe bzw. in die WhatsApp-Gruppe für die 
