@@ -55,9 +55,10 @@ zeitgerecht folgen.
 Um in die Jugendgruppe offiziell aufgenommen zu werden, brauchen wir deine/eure Daten. 
 Hierfür bitte das Anmeldeformular (findest du/ihr 
 [hier](https://www.red-angels.at/assets/Anmeldeformular_Jugendgruppe.pdf)) ausfüllen
-und uns per _Mail_ an jg[dot]salzburgstadt[at]s[dot]roteskreuz[dot]at schicken.
-Bitte auch ein aktuelles Foto (Schulfoto oder gutes Portrait-Foto) mitschicken. 
-Das brauchen wir für deinen/eure Mitarbeiterausweise.
+und uns unterschrieben in die nächste Gruppenstunde mitnehmen.
+Wir brauchen für den Mitgliedsausweis auch ein aktuelles Foto (Schul- oder gutes Portrait-Foto). 
+Dieses bitte per _Mail_ an jg [dot] salzburgstadt [at] s [dot] roteskreuz [dot] at
+schicken
 
 _Hinweis:_ bei den E-Mail-Adressen `[dot]` durch `.` und `[at]` durch `@` ersetzen.
 
