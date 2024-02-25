@@ -83,7 +83,7 @@ Bitte bis spätestens **20. März** anmelden.
 * ärztlich verordnete Medikamente im erforderlichen Umfang
 * wer will - Musikinstrument, Fotoapparat
 
-**Gibt es Eltern die uns mit Selbstgemachtem unterstützen wollen?** Wenn ja, so sprecht das doch bitte bis spätestens den 30.4. mit uns ab. Wir schätzen jede Unterstützung, wollen jedoch sicher gehen, dass nicht zu viel von etwas da ist.
+**Gibt es Eltern die uns mit Selbstgemachtem unterstützen wollen?** Wenn ja, so sprecht das doch bitte bis spätestens den 30.4. mit uns (am Besten mit Martin) ab. Wir schätzen jede Unterstützung, wollen jedoch sicher gehen, dass nicht zu viel von etwas da ist.
 
 
 ## Was soll nicht mitgenommen werden?
