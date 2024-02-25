@@ -15,7 +15,7 @@ Dazu laden wir alle Gruppenmitglieder sehr herzlich ein!
 
 ![IMAGE ALT TEXT HERE](https://www.red-angels.at/assets/header_gaisberg.JPG)
 
-#### Hard Facts:
+## Hard Facts
 - **Wann?** 03. - 04.05.2024
 - **Wo?** [Dr. Varnscheinhaus, Oberwinkl 66, 5026 Oberwinkl](https://goo.gl/maps/KCCQh1oP8bHLhGmK7)
 - **Anreise?** Freitag bis 14.00 Uhr
@@ -26,12 +26,12 @@ Auch beim Gaisberglager wird es ein tolles Programm geben: Erste-Hilfe-Stationen
 An diesem Wochenende steht der Spaß im Vordergrund.
 
 
-#### Anreise
+## Anreise
 Es wird keine gemeinsame Anreise organisiert.
 Für die Anreise bitten wir, Fahrgemeinschaften sowie den öffentlichen Verkehr zu nutzen.
 Nutzt die WhatsApp-Gruppen, um eine Mitfahrgelegenheit zu finden oder anzubieten.
 
-##### Mit öffentlichen Verkehrsmitteln
+### Mit öffentlichen Verkehrsmitteln
 Wir möchten unser Lager so nachhaltig wie möglich gestalten.
 Deshalb ermutigen wir zur Nutzung des Gaisbergbusses.
 Wir bieten auch an, euch von der nächstgelegenen Bushaltestelle abzuholen.
@@ -42,11 +42,11 @@ Von dort bieten wir einen Shuttle-Service (damit nicht das ganze Gepäck getrage
 **Wollt ihr unser Angebot nutzen?** Dann gebt uns bitte bis spätestens Donnerstag, den 2. Mai (Tag vor der Anreise), Bescheid.
 
 
-##### Individuell mit dem Auto
+### Individuell mit dem Auto
 Die Zufahrt kann über Elsbethen oder Gnigl erfolgen. Das 
 [Dr. Varnscheinhaus](https://goo.gl/maps/KCCQh1oP8bHLhGmK7) befindet sich unterhalb des Gasthof Mitteregg. Direkt an der Straße ist der Parkplatz, das Haus befindet sich dann eine halbe Gehminute oberhalb.
 
-#### Was kostet das ganze?
+## Was kostet das ganze?
 Für das Gaisberglager wird kein extra Unkostenbeitrag erhoben. Das Wochenende wird mit dem Jahresbeitrag des Gruppenmitglieds abgegolten. Sollte dieser noch nicht bezahlt worden sein (25 € pro Semester), bitten wir, den Beitrag unter Angabe des Namens des Jugendgruppenmitglieds auf das Konto der Jugendgruppe zu überweisen:
 
 **Rotes Kreuz Landesverband Salzburg, Jugendgruppe Salzburg-Stadt**<br>
@@ -57,16 +57,16 @@ Für das Gaisberglager wird kein extra Unkostenbeitrag erhoben. Das Wochenende w
 **Achtung:** bitte den Betrag auf das gegebene Konto überweisen und nicht bar mitbringen.
 
 
-#### Was ist jetzt zu tun?
+## Was ist jetzt zu tun?
 Unter
 [diesem Link](https://forms.office.com/e/dLKV71xF98)
 kann das Anmeldeformular online ausgefüllt werden. Bitte einfach ausfüllen und absenden. Die Anmeldung ist komplett, wenn auch der Semesterbeitrag für das Sommersemester bezahlt ist (wenn nicht schon geschehen).
 
-#### Bis wann ist eine Anmeldung notwendig?
+## Bis wann ist eine Anmeldung notwendig?
 Bitte bis spätestens **20. März** anmelden.
 
 
-#### Packliste
+## Packliste
 * Schlafsack
 * Polster
 * Trinkflasche
@@ -82,7 +82,7 @@ Bitte bis spätestens **20. März** anmelden.
 * wer will - Musikinstrument, Fotoapparat
 
 
-#### Was soll nicht mitgenommen werden?
+## Was soll nicht mitgenommen werden?
 * Süßigkeiten und andere Snacks (wir haben schon einiges in Vorbereitung)
 * Wertgegenstände (wird keine Haftung übernommen)
 * Tablet
@@ -93,7 +93,7 @@ Bitte bis spätestens **20. März** anmelden.
 Wir erlauben uns, sollten Gegenstände dieser Liste mitgenommen worden sein, diese
 bis zur Abreise zu verwahren.
 
-#### Gibt es noch Fragen?
+## Gibt es noch Fragen?
 Sollten noch Fragen offen sein, ruft uns einfach an oder schreibt uns eine E-Mail an 
 [jg.salzburgstadt@s.roteskreuz.at](mailto:jg.salzburgstadt@s.roteskreuz.at).
 
