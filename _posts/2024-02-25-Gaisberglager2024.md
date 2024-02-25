@@ -20,17 +20,18 @@ Dazu laden wir alle Gruppenmitglieder sehr herzlich ein!
 - **Wo?** [Dr. Varnscheinhaus, Oberwinkl 66, 5026 Oberwinkl](https://goo.gl/maps/KCCQh1oP8bHLhGmK7)
 - **Anreise?** Freitag bis 14.00 Uhr
 - **Abreise/Abholung?** Samstag zwischen 14.00-15.00 Uhr
+- **Anmeldung** bis 20. März
 
 Auch beim Gaisberglager wird es ein tolles Programm geben: Erste-Hilfe-Stationen, Basteln, Spiele, ...
 An diesem Wochenende steht der Spaß im Vordergrund.
 
 Unser heuriges Lager wollen wir so _nachhaltig_ wie möglich organisieren. Aus der Erfahrung der letzten Jahre, in denen wir immer sehr viel Müll produziert haben, wollen wir lernen.
-Daher werden wir schon sehr viel reginal und verpackungsfrei beziehen.
+Daher werden wir schon sehr viel regional und verpackungsfrei beziehen.
 
 
 ## Anreise
 Es wird keine gemeinsame Anreise organisiert.
-Für die Anreise bitten wir, Fahrgemeinschaften sowie den öffentlichen Verkehr zu nutzen.
+Für die Anreise bitten wir den öffentlichen Verkehr, oder alternativ Fahrgemeinschaften, zu nutzen.
 Nutzt die WhatsApp-Gruppen, um eine Mitfahrgelegenheit zu finden oder anzubieten.
 
 ### Mit öffentlichen Verkehrsmitteln
@@ -41,7 +42,7 @@ Der Gaisbergbus, Linie 151, fährt im 45-Minuten-Takt vom Mirabellplatz über di
 Die Haltestelle am Gaisberg ist **Gaisberg Mitteregg**.
 Von dort bieten wir einen Shuttle-Service (damit nicht das ganze Gepäck getragen werden muss) zum Dr. Varnscheinhaus.
 
-**Wollt ihr unser Angebot nutzen?** Dann gebt uns bitte bis spätestens Donnerstag, den 2. Mai (Tag vor der Anreise), Bescheid.
+**Wollt ihr unser Angebot nutzen?** Dann gebt uns bitte zeitig Bescheid.
 
 
 ### Individuell mit dem Auto
@@ -62,7 +63,7 @@ Für das Gaisberglager wird kein extra Unkostenbeitrag erhoben. Das Wochenende w
 ## Was ist jetzt zu tun?
 Unter
 [diesem Link](https://forms.office.com/e/dLKV71xF98)
-kann das Anmeldeformular online ausgefüllt werden. Bitte einfach ausfüllen und absenden. Die Anmeldung ist komplett, wenn auch der Semesterbeitrag für das Sommersemester bezahlt ist (wenn nicht schon geschehen).
+kann das Anmeldeformular online ausgefüllt werden. Bitte einfach ausfüllen und absenden. Die Anmeldung ist komplett, wenn auch der Semesterbeitrag für das Sommersemester bezahlt ist (sofern nicht bereits bezahlt).
 
 ## Bis wann ist eine Anmeldung notwendig?
 Bitte bis spätestens **20. März** anmelden.
@@ -72,7 +73,7 @@ Bitte bis spätestens **20. März** anmelden.
 * Schlafsack
 * Polster
 * Trinkflasche
-* eigene Hygieneartikel: Zahnbürste, -pasta, Duschgel, etc.
+* eigene Hygieneartikel: Zahnbürste, -pasta, etc.
 * warme Bekleidung
 * Taschenlampe
 * Hausschuhe (wichtig!)
@@ -83,7 +84,7 @@ Bitte bis spätestens **20. März** anmelden.
 * ärztlich verordnete Medikamente im erforderlichen Umfang
 * wer will - Musikinstrument, Fotoapparat
 
-**Gibt es Eltern die uns mit Selbstgemachtem unterstützen wollen?** Wenn ja, so sprecht das doch bitte bis spätestens den 30.4. mit uns (am Besten mit Martin) ab. Wir schätzen jede Unterstützung, wollen jedoch sicher gehen, dass nicht zu viel von etwas da ist.
+**Gibt es Eltern die uns mit Selbstgemachtem unterstützen wollen?** Wenn ja, so sprecht das doch bitte bis spätestens den **30. April** mit uns (am Besten mit Martin) ab. Wir schätzen jede Unterstützung, wollen jedoch sicher gehen, dass nicht zu viel von etwas da ist.
 
 
 ## Was soll nicht mitgenommen werden?
