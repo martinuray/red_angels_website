@@ -21,9 +21,11 @@ Dazu laden wir alle Gruppenmitglieder sehr herzlich ein!
 - **Anreise?** Freitag bis 14.00 Uhr
 - **Abreise/Abholung?** Samstag zwischen 14.00-15.00 Uhr
 
-
 Auch beim Gaisberglager wird es ein tolles Programm geben: Erste-Hilfe-Stationen, Basteln, Spiele, ...
 An diesem Wochenende steht der Spaß im Vordergrund.
+
+Unser heuriges Lager wollen wir so _nachhaltig_ wie möglich organisieren. Aus der Erfahrung der letzten Jahre, in denen wir immer sehr viel Müll produziert haben, wollen wir lernen.
+Daher werden wir schon sehr viel reginal und verpackungsfrei beziehen.
 
 
 ## Anreise
@@ -80,6 +82,8 @@ Bitte bis spätestens **20. März** anmelden.
 * E-Card (verbleiben bei den Mitgliedern)
 * ärztlich verordnete Medikamente im erforderlichen Umfang
 * wer will - Musikinstrument, Fotoapparat
+
+**Gibt es Eltern die uns mit Selbstgemachtem unterstützen wollen?** Wenn ja, so sprecht das doch bitte bis spätestens den 30.4. mit uns ab. Wir schätzen jede Unterstützung, wollen jedoch sicher gehen, dass nicht zu viel von etwas da ist.
 
 
 ## Was soll nicht mitgenommen werden?
