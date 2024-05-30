@@ -18,7 +18,6 @@ Dieser Termin ist schon in vorhergehenden Informationsbriefen avisiert gewesen (
 #### Hard Facts 
 - **Wann?** Sonntag, 30.06.24, 09.30 Uhr
 - **Wo?** Salzachsee Liefering
-# TODO
 - **Treffpunkt?** bei der Hütte der Wasserrettung/Bademeister ([Google Maps](https://goo.gl/maps/1JyQXdQpJZHNvaSk8)) um 09:30 Uhr – unbedingt pünktlich sein! Da wir ein genaues Programm haben und Gruppen eingeteilt sind, ist ein späteres Einsteigen nicht möglich!
 - **Ende?** 14:30 Uhr
 
@@ -28,7 +27,7 @@ Bitte um **Zu- oder Absage bis inkl. 25.6.** unter [diesem Link](https://forms.o
 
 - Eigene Wasserflasche
 - Normale Bekleidung (Turnschuhe)
-- Badesachen (Badehose, Bikini, Handtuch, gerne schon direkt darunter anziehen)
+- Badesachen (Badehose, Bikini, Handtuch); bitte schon direkt anziehen
 - Sonnenschutz (Sonnencreme, Kapperl, wer hat, gerne das Kapperl des RK)
  
 Für Verpflegung ist gesorgt.
