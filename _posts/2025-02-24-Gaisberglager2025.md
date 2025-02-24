@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Das Gaisberglager 2025!"
-date:   2025-02-24 19:00:00 +0100
+date:   2025-02-24 18:45:00 +0100
 author: Martin Uray
 categories: lager
 ---
