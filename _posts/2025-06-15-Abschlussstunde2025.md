@@ -12,7 +12,6 @@ Liebe Eltern und Erziehungsberechtigte,
  
 ein weiteres Schuljahr neigt sich dem Ende zu – und damit steht auch unsere Abschlussstunde bevor!
 Wie in den vergangenen Jahren verbringen wir diesen besonderen Tag gemeinsam mit der Wasserrettung.
- 
 Der Termin wurde bereits in früheren Informationsbriefen angekündigt (siehe [hier](https://www.red-angels.at/general/2024/10/14/Elternbrief_Schuljahr2425.html) und [hier](https://www.red-angels.at/general/2024/10/07/Willkommensbrief.html)).
 
 #### Wichtige Infos 
@@ -45,7 +44,7 @@ Falls es noch offene Fragen gibt, meldet euch gerne telefonisch oder per E-Mail 
 [jg.salzburgstadt@s.roteskreuz.at](mailto:jg.salzburgstadt@s.roteskreuz.at).
 <br><br>
 
-Wir freuen uns auf einen großartigen Tag mit euch!<br>
+Wir freuen uns auf einen großartigen Tag mit euch!<br><br>
 Herzliche Grüße<br>
 __Martin, Ines und Florian__<br>
 *Für die gesamte Jugendgruppe*
