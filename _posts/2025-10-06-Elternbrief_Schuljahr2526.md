@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Willkommen im neuen Gruppenjahr 2024/25!"
+title:  "Willkommen im neuen Gruppenjahr 2025/26!"
 date:   2025-10-06 11:45:00 +0100
 author: Martin Uray
 categories: general
@@ -30,7 +30,7 @@ dauern wird.
 
 Als ersten schon gesetztes Event für das kommende Schuljahr dürfen wir
 das *dreitätige* Gaisberglager, Freitag 
-bis Sonntag, (vorrausichtlich) 29. bis 31. Mai 2025, präsentieren. 
+bis Sonntag, 29. bis 31. Mai 2025, präsentieren. 
 Dies wird heuer dreitägig sein, da wir an keinem Landes- oder Bundesjugendcamp teilnehmen werden.
 Wir würden uns 
 Es würde uns freuen, wenn ihr diese Tage für eure Kinder freihalten könnt. Genauere Informationen 
