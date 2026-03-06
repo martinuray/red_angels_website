@@ -4,6 +4,7 @@ title:  "Willkommen im neuen Gruppenjahr 2025/26!"
 date:   2025-10-06 11:45:00 +0100
 author: Martin Uray
 categories: general
+sitemap: false
 ---
 
 ## Liebe Eltern und Erziehungsberechtigte,
