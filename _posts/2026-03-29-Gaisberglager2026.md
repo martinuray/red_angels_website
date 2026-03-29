@@ -18,7 +18,7 @@ Dazu laden wir alle Gruppenmitglieder sehr herzlich ein!
 - **Wann?** 29. - 31.05.2026 (zwei Nächte)
 - **Wo?** [Dr. Varnscheinhaus, Oberwinkl 66, 5026 Oberwinkl](https://goo.gl/maps/KCCQh1oP8bHLhGmK7)
 - **Anreise?** Freitag bis 14.00 Uhr
-- **Abreise/Abholung?** Sonntag zwischen 12.00–13.00 Uhr
+- **Abreise/Abholung?** Sonntag zwischen 10.00–11.00 Uhr
 - **Anmeldung** bis 20. April
 
 Auch beim Gaisberglager wird es ein tolles Programm geben: Erste-Hilfe-Stationen, Basteln, Spiele, ...
@@ -44,7 +44,7 @@ Die Zufahrt kann über Elsbethen oder Gnigl erfolgen. Das
 [Dr. Varnscheinhaus](https://goo.gl/maps/KCCQh1oP8bHLhGmK7) befindet sich unterhalb des Gasthof Mitteregg. Direkt an der Straße ist der Parkplatz, das Haus befindet sich dann eine halbe Gehminute oberhalb.
 
 ## Was kostet das ganze?
-Für das Gaisberglager werden wir heuer einen Unkostenbeitrag von 15€ einheben. Wir bitten den Beitrag unter Angabe des Namens des Jugendgruppenmitglieds auf das Konto der Jugendgruppe zu überweisen:
+Für das Gaisberglager werden wir heuer einen Unkostenbeitrag von 20€ einheben. Wir bitten den Beitrag unter Angabe des Namens des Jugendgruppenmitglieds auf das Konto der Jugendgruppe zu überweisen:
 
 **Rotes Kreuz Landesverband Salzburg, Jugendgruppe Salzburg-Stadt**<br>
     IBAN:  	AT49 2040 4000 4191 4136<br>
