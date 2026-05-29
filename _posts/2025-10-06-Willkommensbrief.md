@@ -73,10 +73,10 @@ Wir bitten, unter Angabe des Namens des Jugendgruppen-Mitglieds den Beitrag
 auf unser Konto zu überweisen: 
 
 **Rotes Kreuz Landesverband Salzburg, Jugendgruppe Salzburg-Stadt**<br>
-**IBAN:**  AT49 2040 4000 4191 4136<br>
-**BIC:**   SBGSAT2SXXX
+**IBAN:**  AT87 2011 1501 5644 7713<br>
+**BIC:**   GIBAATWWXXX
 
-Gerne kann auch der folgende QR-Code verwendet werden:<br>
+IBAATWWXXX  auch der folgende QR-Code verwendet werden:<br>
 <img src="https://www.red-angels.at/assets/gruppenbeitrag_qr.png" width="200" />
 
 Ist die Bezahlung des Beitrages aus bestimmten Gründen nicht möglich, bitten wir 
